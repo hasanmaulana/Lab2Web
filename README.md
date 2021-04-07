@@ -1,4 +1,5 @@
  Assalamu'alaikm Warahmatullahi Wabarakatuh . . .
+ Nama : Hasan Maulana.....  NIM : 311910167.... Kelas : TI.19.A.1
  
  Hasil Langkah-langkah Praktikum ke 2
  
